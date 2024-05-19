@@ -1,0 +1,1 @@
+# zoznamy.sk
